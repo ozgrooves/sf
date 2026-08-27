@@ -4,6 +4,7 @@
 
 ## History
 
+* [12. Sep 2026 @Walhalla](#12-sep-2026-walhalla)
 * [11. Jul 2026 @Mannheim](#11-jul-2026-mannheim)
 * [26. Jun 2026 @Walhalla](#26-jun-2026-walhalla)
 * [21. May 2026 @Ciuri](#21-may-2026-ciuri)
@@ -12,6 +13,17 @@
 * [30. Apr 2025 @Ono2](#30-apr-2025-ono2)
 
 # Setlists
+
+## 12. Sep 2026 Walhalla
+
+* Across 110th street [X] [link](https://youtu.be/ce_DFjJMG04)
+* What's going on [X] [link](https://youtu.be/xBvnBzjLJsc)
+* JB medley oder cold sweat?
+* Lady day and John coltrane [X] [link](https://youtu.be/7aRNUsmfeck)
+* The ghetto [X] [link](https://youtu.be/XealDvQwim8)
+* Why can't we live together [X] [link](https://youtu.be/hULALx9PuXA)
+
+[Back to top](#gigs)
 
 ## 11. Jul 2026 Mannheim
 
