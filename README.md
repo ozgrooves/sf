@@ -16,12 +16,13 @@
 
 ## 12. Sep 2026 Walhalla
 
-* Across 110th street [X] [link](https://youtu.be/ce_DFjJMG04)
+* Cold sweat [D] [link](https://www.youtube.com/watch?v=rvaTrYxd0GU)
+* Lady day & John coltrane [X] [link](https://youtu.be/7aRNUsmfeck)
 * What's going on [X] [link](https://youtu.be/xBvnBzjLJsc)
-* JB medley oder cold sweat?
-* Lady day and John coltrane [X] [link](https://youtu.be/7aRNUsmfeck)
-* The ghetto [X] [link](https://youtu.be/XealDvQwim8)
-* Why can't we live together [X] [link](https://youtu.be/hULALx9PuXA)
+* MRG [D] [link](https://www.youtube.com/watch?v=p37y3vqP_DM)
+* The ghetto [Bbm] [link](https://youtu.be/XealDvQwim8)
+* Move on up [Bm] [link](https://www.youtube.com/watch?v=A9RMr9KuVZo)
+* Feel like making love [Fm] [link](https://www.youtube.com/watch?v=SMuMMhfHaNw)
 
 [Back to top](#gigs)
 
