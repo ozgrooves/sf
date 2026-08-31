@@ -17,8 +17,8 @@
 ## 12. Sep 2026 Walhalla
 
 * Cold sweat [D] [link](https://www.youtube.com/watch?v=rvaTrYxd0GU)
-* Lady day & John coltrane [X] [link](https://youtu.be/7aRNUsmfeck)
-* What's going on [X] [link](https://youtu.be/xBvnBzjLJsc)
+* Lady day & John coltrane [C] [link](https://youtu.be/7aRNUsmfeck)
+* What's going on [E] [link](https://youtu.be/xBvnBzjLJsc)
 * MRG [D] [link](https://www.youtube.com/watch?v=p37y3vqP_DM)
 * The ghetto [Bbm] [link](https://youtu.be/XealDvQwim8)
 * Move on up [Bm] [link](https://www.youtube.com/watch?v=A9RMr9KuVZo)
