@@ -4,6 +4,7 @@
 
 ## History
 
+* [22. Oct 2026 @Walhalla](#22-oep-2026-ciuri)
 * [12. Sep 2026 @Walhalla](#12-sep-2026-walhalla)
 * [11. Jul 2026 @Mannheim](#11-jul-2026-mannheim)
 * [26. Jun 2026 @Walhalla](#26-jun-2026-walhalla)
@@ -13,6 +14,34 @@
 * [30. Apr 2025 @Ono2](#30-apr-2025-ono2)
 
 # Setlists
+
+## 22. Oct 2026 Ciuri
+
+### Set
+
+* Dear limmertz [Dm] [link](https://www.youtube.com/watch?v=u_Dx_Iq0c1A)
+* A go go [Bm] [link](https://www.youtube.com/watch?v=-PXOr681_VU)
+* Mystic brew [Fm] [link](https://www.youtube.com/watch?v=URF3D7loafU)
+* Cissy strut [C] [link](https://www.youtube.com/watch?v=COUt4JOSIVE)
+* Too high [Am] [link](https://www.youtube.com/watch?v=q8dK0iEzi1M)
+* What's going on [E] [link](https://youtu.be/xBvnBzjLJsc)
+
+### Encore
+
+* MRG [D] [link](https://www.youtube.com/watch?v=p37y3vqP_DM)
+
+### Session
+
+* Cantaloupe woman [D]
+* It's real [A]
+* Move on up [Bm]
+* Right on [D]
+* The ghetto [Abm]
+* Tighten up [F]
+* Turtle walk [C]
+* What it is [D]
+
+[Back to top](#gigs)
 
 ## 12. Sep 2026 Walhalla
 
