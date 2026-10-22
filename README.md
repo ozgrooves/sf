@@ -4,7 +4,7 @@
 
 ## History
 
-* [22. Oct 2026 @Ciuri](#22-oep-2026-ciuri)
+* [22. Oct 2026 @Ciuri](#22-oct-2026-ciuri)
 * [12. Sep 2026 @Walhalla](#12-sep-2026-walhalla)
 * [11. Jul 2026 @Mannheim](#11-jul-2026-mannheim)
 * [26. Jun 2026 @Walhalla](#26-jun-2026-walhalla)
@@ -24,7 +24,8 @@
 * Mystic brew [Fm] [link](https://www.youtube.com/watch?v=URF3D7loafU)
 * Cissy strut [C] [link](https://www.youtube.com/watch?v=COUt4JOSIVE)
 * Too high [Am] [link](https://www.youtube.com/watch?v=q8dK0iEzi1M)
-* What's going on [E] [link](https://youtu.be/xBvnBzjLJsc)
+* I cant help it [Am] [link](https://www.youtube.com/watch?v=Ou1PSTAllVw)
+* Whats going on [E] [link](https://youtu.be/xBvnBzjLJsc)
 
 ### Encore
 
