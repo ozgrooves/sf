@@ -4,7 +4,7 @@
 
 ## History
 
-* [22. Oct 2026 @Walhalla](#22-oep-2026-ciuri)
+* [22. Oct 2026 @ciuri](#22-oep-2026-ciuri)
 * [12. Sep 2026 @Walhalla](#12-sep-2026-walhalla)
 * [11. Jul 2026 @Mannheim](#11-jul-2026-mannheim)
 * [26. Jun 2026 @Walhalla](#26-jun-2026-walhalla)
