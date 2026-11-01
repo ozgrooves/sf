@@ -1,5 +1,21 @@
 # Slick Footwork
 
+# Song suggenstions
+
+## Özgür
+* Little walter rides again [link](https://www.youtube.com/watch?v=9rkbjJ53DZI)
+* Hottentot [link](https://www.youtube.com/watch?v=swV0h3Yg_3M)
+* Shine it [link](https://www.youtube.com/watch?v=qbs1O-IUBv8)
+* Bubblehouse [link](https://www.youtube.com/watch?v=kHjgI5ysdJ0)
+* Bemsha swing / Lively up yourself [link](https://www.youtube.com/watch?v=epayVG7FHYs)
+
+## Philipp
+* Pret-À-Porter [link](https://www.youtube.com/watch?v=052RJumRWW0)
+* Funkyou [link](https://www.youtube.com/watch?v=wheZBhToFR8)
+* Off the wall [link](https://www.youtube.com/watch?v=_BfcRjZn6y4)
+* Toque de cuica [link](https://www.youtube.com/watch?v=NiF3jgg4xPc)
+* Gentle thoughts [link](https://www.youtube.com/watch?v=E7-eYsjAp20)
+
 # Gigs
 
 ## History
