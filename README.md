@@ -2,6 +2,11 @@
 
 # Song suggestions
 
+## George
+* Searching [link](https://www.youtube.com/watch?v=vc48ITjETAk)
+* Stay This Way (2 halbtöne tiefer) [link](https://www.youtube.com/watch?v=EpgMpmsx258)
+* Who Needs Love [link](https://www.youtube.com/watch?v=atmJ7_KgwCY)
+
 ## Özgür
 * Little walter rides again [link](https://www.youtube.com/watch?v=9rkbjJ53DZI)
 * Hottentot [link](https://www.youtube.com/watch?v=swV0h3Yg_3M)
