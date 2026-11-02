@@ -1,6 +1,6 @@
 # Slick Footwork
 
-# Song suggenstions
+# Song suggestions
 
 ## Özgür
 * Little walter rides again [link](https://www.youtube.com/watch?v=9rkbjJ53DZI)
